@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects?
 - 📫 How to reach me? Text me, don't call
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am addicted to mountain dew. 
+- ⚡ Fun fact: I am addicted to mountain dew.. and monster...and coffee.. basically anything with caffeine!
 
 <!---
 sri-b13/sri-b13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
