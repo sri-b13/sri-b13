@@ -1,7 +1,5 @@
-- 👋 Hi, I’m @sri-b13
-- 👀 I’m interested in reading!
-- 🌱 I’m currently learning how to code :)
-- 💞️ I’m looking to collaborate on projects?
+- 👋 Hi, I’m Srilakshmi
+- 👀 I’m interested in reading?
 - 📫 How to reach me? Text me, don't call
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am addicted to mountain dew.. and monster...and coffee.. basically anything with caffeine!
