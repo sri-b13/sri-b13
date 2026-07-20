@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Srilakshmi
-- 👀 I’m interested in reading?
+- 👀 I’m interested in reading!
 - 📫 How to reach me? Text me, don't call
-- 😄 Pronouns: she/her
 - ⚡ Fun fact: I am addicted to mountain dew.. and monster...and coffee.. basically anything with caffeine!
 
 <!---
